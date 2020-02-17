@@ -1,6 +1,6 @@
 # Hello-World
 
-Hi I'n Jess!
+Hi I'm Jess!
 
-I play guitar and enjoy skateboarding in my spare time when I am not at work. 
+When I am not at work I play guitar and enjoy skateboarding. 
 I also paint, knit and cross stich on evenings. 
